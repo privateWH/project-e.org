@@ -1,0 +1,9 @@
+# project-e.org
+
+This project stands for 
+e stands for ecosystem and epedemic.
+Way before there is cloud computing, I have an idea of using a structure that similar to virus to generate computing power...
+But I think working on curing plants that are dying
+Inlines with the principle that the old gen Chinese would want.
+They probably studied human mind more than what we have up to these day...
+Just byproduct of some old architecture....
